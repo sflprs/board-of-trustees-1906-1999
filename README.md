@@ -20,7 +20,7 @@ Part of the photographed records of the **San Francisco Ladies’ Protection and
 - **T2 Trustees Meetings 1930–1955:** Spine: “Minutes Trustees 1930–1955 A”. Typed minutes, ending with the December 1955 merger and the note “This minute book is closed at this point.”
 - **T3 Trustees Meetings 1969–1976:** Cover: “Board of Trustees Minutes Regular Meetings 1969–1976”.
 - **T4 Trustees Meetings 1977–1992:** Spine: “Trustees – Reg. Meetings 1977–1992”. Pages were photographed from the back of the book forward.
-- **T5 Trustees Meetings 1993–1999:** Wilson Jones minute book; sticky note on cover: “Mr White joined Trustees March 1, 1949”.
+- **T5 Trustees Meetings 1993–1999:** Wilson Jones minute book; sticky note on cover: “Mr White joined Trustees March 1, 1949” (as written).
 
 ## Folder layout
 
